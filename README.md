@@ -13,3 +13,5 @@ DCMN Hofstad
 "[while leaving] I have a pain in my side. This is it for me. This doesn't have to be it for you. See you around..." -Tom Udall
 
 "I can't just sit here while darth vader does presentations on how her kills us. Stupid decisions to clean this room, it wasn't worth it. We could have had children in this room. I wanted to see some chidlren and play today. If I could have had my dick in a kid I would have stayed for your presentation." -Chris Coons
+
+DCMN Hofstad
