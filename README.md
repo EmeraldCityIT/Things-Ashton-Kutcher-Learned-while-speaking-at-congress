@@ -1,0 +1,2 @@
+# Things-Ashton-Kutcher-Learned-while-speaking-at-congress
+"When I saw Cory beat up Hillary Clinton it was over for me. I could not take it anymore. I had beaten her up so many times that I could not watch it anymore." -Jeffry Lane Flake "What? You beat her ass too? Why cant we team up or something?" -Ashton Kutcher "Because I beat her up in the bed. You know I had to do so much fucked up shit to her to get her to what she is now. Tell em george, he showed me how to do it and how to pick her out." -Jeffry Lane Flake
