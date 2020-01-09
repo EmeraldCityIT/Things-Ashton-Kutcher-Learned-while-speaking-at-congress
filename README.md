@@ -6,8 +6,11 @@ DCMN Hofstad
 "I didn't have anything to do with hillary. But I would like to know what Mr. Kutcher would do for a little girl right now." -
 
 "I don't have to stay for this. I'm a pedophile, what are you going to do about it." -Stephanie N. Murphy
+
 "Are you really a pedophile?" -Ashton Kutcher
+
 "I have two kids, I rape them both. I just had a daughter. You want to see her?" -Stephanie N. Murphy
+
 "Get the fuck outa her so I can't kill you in this room. People see [this place]. This place is important to people." -Ashton Kutcher
 
 "[while leaving] I have a pain in my side. This is it for me. This doesn't have to be it for you. See you around..." -Tom Udall
